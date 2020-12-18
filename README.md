@@ -1,1 +1,0 @@
-# Nazlican-Kaya
